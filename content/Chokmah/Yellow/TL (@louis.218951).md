@@ -3,10 +3,8 @@ https://www.facebook.com/share/v/1A7xeWtujH/
 
 TL này đã đc mình điều chỉnh 1 chút để có thể tối đa hóa sát thương. Cảm ơn tác giả gốc đã cho ý tưởng
 
-Nếu ko chú thích bên cạnh
-Kisaki luôn dùng vào Marina
-Ako luôn dùng vào Neru
-Sau 2 đợt tên lửa, dùng Mari vào Hoshino là chính, còn ko ai cũng đc
+Nếu ko chú thích bên cạnh:
+Kisaki luôn dùng vào Marina. Ako luôn dùng vào Neru. Sau 2 đợt tên lửa, dùng Mari vào Hoshino là chính, còn ko ai cũng đc
 
 Video: đang Update
 
