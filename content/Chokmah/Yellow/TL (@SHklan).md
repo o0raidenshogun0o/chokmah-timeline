@@ -54,7 +54,7 @@
 | 17.5 | Ui -> Neru                                                                                            |                          |
 | 15   | Hoshino -> Rio (Neru)                                                                                 | Chặn lửa                 |
 | 11.9 | Meru                                                                                                  |                          |
-| 10   | C.Neru -> Kisaki (Neru) -> Ako -> Neru (VS) -> Neru -> (note) Hoshino (abcxyzdds)                                 | Chặn lửa                 |
+| 10   | C.Neru -> Kisaki (Neru) -> Ako -> Neru (VS) -> Neru -> (note) Hoshino                                 | Chặn lửa                 |
 
 
  
