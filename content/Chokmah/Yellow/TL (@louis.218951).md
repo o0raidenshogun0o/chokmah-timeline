@@ -6,7 +6,7 @@ TL này đã đc mình điều chỉnh 1 chút để có thể tối đa hóa s�
 Nếu ko chú thích bên cạnh:
 Kisaki luôn dùng vào Marina. Ako luôn dùng vào Neru. Sau 2 đợt tên lửa, dùng Mari vào Hoshino là chính, còn ko ai cũng đc
 
-Video: đang Update
+Video: https://youtu.be/7v8MDnMHoWM?si=2TOKwjxJl8JLHftN
 
 | Team  | U.Neru | S.Ui  | I.Mari | Ibuki   | Q.Marina | B.Hoshino | Ako | Kisaki | Kirino | Saya |
 | ----- | ------ | ----- | ------ | ------- | -------- | --------- | --- | ------ | ------ | ---- |
